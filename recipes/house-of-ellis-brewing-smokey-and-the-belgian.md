@@ -1,0 +1,1 @@
+Smoked Belgian Dubbel. Add the Candi Syrup after high Krausen.

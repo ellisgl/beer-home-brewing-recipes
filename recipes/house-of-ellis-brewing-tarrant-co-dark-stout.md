@@ -1,0 +1,1 @@
+Loosely based around some Guinness Extra Stout clone recipes I found.

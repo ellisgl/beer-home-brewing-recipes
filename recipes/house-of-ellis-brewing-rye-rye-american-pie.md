@@ -1,0 +1,1 @@
+Almost all American. Use 3/4 cup (Which equals ~0.4 LBS) of Apple juice with no-preservatives @ flame out.

@@ -1,0 +1,1 @@
+I designed this beer around the name I gave to an HTML template I designed back about 10 years ago, which was called Wild Green Donkey Punch. Stop the madness, go organic. Organic UK Fuggles that is.

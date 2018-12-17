@@ -1,0 +1,1 @@
+I like Cream Corn! Well, Cream Ales are based on corn products, and I think they really need a milk product to be truly called a Cream Ale. So here you go, a corny cream ale! This might not to many peoples liking. Might be one you want to put in the heated purifier.

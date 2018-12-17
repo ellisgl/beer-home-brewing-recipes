@@ -1,0 +1,1 @@
+Read about the $20 Challenge. Drinkable? We'll find out one of these days. From my LHBS, Malt, Hops and yeast comes out to $16.81 with tax and Dark Brown sugar is ~$1/LB. So around $17.81 for 5 Gallons.

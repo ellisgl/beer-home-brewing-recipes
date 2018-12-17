@@ -1,0 +1,1 @@
+Based around a inside joke about awful horror-metal bands we knew in the 90's. 6 IBU, 6 degrees, 6% - Probably will taste like hell.

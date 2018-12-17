@@ -1,0 +1,1 @@
+I want to see how well Lactobacillus sanfranciscensis & Candida humilis (Bacteria and Yeast strain that is in San Francisco sour dough) can ferment.

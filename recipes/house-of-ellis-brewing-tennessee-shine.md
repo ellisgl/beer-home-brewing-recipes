@@ -1,0 +1,1 @@
+Based on a moon shine recipe. Ferment for 14 days, 7 days in add your sanitized oak chips. 

@@ -1,0 +1,1 @@
+Based on a nick name of a ex-cigarette smoker when they did smoke. Wanted to have smokey malts and hops that had earthy / tobacco notes. Of course this might end up tasting like the walls of a smokey bar.

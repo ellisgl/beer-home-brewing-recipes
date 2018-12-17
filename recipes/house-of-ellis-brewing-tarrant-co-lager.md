@@ -1,0 +1,1 @@
+Lager based around some Miller High Life clone recipes I found. Yes, I like Miller High Life!

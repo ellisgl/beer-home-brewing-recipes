@@ -1,0 +1,1 @@
+Uses Warminster, Crisp, Thomas Fawcett and Muntons Maris Otter. I was going to use Comet hops instead of Apollo, but try to find any Comet hops in the US.

@@ -1,0 +1,1 @@
+Why only make a Christmas beer? How about a Thanksgiving dinner in a bottle!

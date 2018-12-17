@@ -1,0 +1,1 @@
+Kentucky Common with Smoked Malt fermented like a California Steam.

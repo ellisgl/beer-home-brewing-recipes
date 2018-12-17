@@ -1,0 +1,1 @@
+[http://www.reddit.com/r/Homebrewing/comments/2nt36k/amalgamation_of_left_over_grains_and_hops_suggest/](http://www.reddit.com/r/Homebrewing/comments/2nt36k/amalgamation_of_left_over_grains_and_hops_suggest/)

@@ -1,0 +1,1 @@
+After finding out about how my future step sister in-law might be allergic to hops or maybe barely (I'm going toward hops), decided to look up Gruit recipes. I left out the mudwort, which seems to be popular in Gruits, just because of the potential side effects in females.
